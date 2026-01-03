@@ -4,7 +4,7 @@ spoke , pancake , or sicle  (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
 
 ︵︵        same user on everything !!
 
-    ꒰ links ꒱ ⤵︎
+.    ꒰ links ꒱ ⤵︎
     
 ❀ https://rentry.co/media_player
 
