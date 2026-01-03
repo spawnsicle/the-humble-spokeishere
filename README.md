@@ -1,2 +1,7 @@
 # the-humble-spokeishere
-wow i wonder if theyre a spoke fan     !
+
+spoke , pancake , or sicle  (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
+︵︵        same user on everything !!
+    ꒰ links ꒱ ⤵︎
+❀ https://rentry.co/media_player
+୨୧ https://en.pronouns.page/@spawnsicle
