@@ -6,6 +6,6 @@ spoke , pancake , or sicle  (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
 
 .    ꒰ links ꒱ ⤵︎
     
-❀ https://rentry.co/media_player
+❀ https://rentry.co/media_player < wip
 
 ୨୧ https://en.pronouns.page/@spawnsicle
